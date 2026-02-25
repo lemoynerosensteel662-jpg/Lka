@@ -1,1 +1,1 @@
-# Lka
+🪟 window 10 pro
